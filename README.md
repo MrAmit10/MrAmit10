@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding...
 - 💞️ I’m looking to collaborate on new job opportunities
 - 📫 How to reach me :gmail id- amitkumardhall321@gmail.com....
-- Instagram id- mr_amit_103
+- Instagram id- https://www.instagram.com/mr_amit_103?igshid=NzZlODBkYWE4Ng%3D%3D
 - Linkedin url: https://www.linkedin.com/in/amit-kumar-dhall-0802521b0/
 
 <!---
